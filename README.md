@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on sadly nothing becuz I am not taking collabs rn.
 - 📫 How to reach me you can just mention me! I will prob respond in 2-5 days.
 - 😄 Pronouns: her,she
-- ⚡ Fun fact: I like stiny socks lmao.
+- ⚡ Fun fact: I like stinky socks lmao.
 
 <!---
 urlocalcodinggirl/urlocalcodinggirl is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
